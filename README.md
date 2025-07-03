@@ -1,1 +1,1 @@
-# https-effervescent-meringue-30d563.netlify.app
+google.com, pub-7217038430457778, DIRECT, f08c47fec0942fa0
